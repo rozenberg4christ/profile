@@ -6,6 +6,8 @@
 - 🥅 2021 Goals: Contribute more to Open Source projects and learn more 
 - ⚡ Fun fact: I like to read books and play keyboard
 
+📫 **Email me:** [rozenberg19@protonmail.com](mailto:rozenberg19@protonmail.com)  
+
 <br />
 
 ### Languages and Tools:
